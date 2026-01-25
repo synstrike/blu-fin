@@ -1,4 +1,5 @@
-![781113cfb7a3076ee4cf5d296bfc6d05](https://github.com/user-attachments/assets/9af29a66-c205-4a8a-9d49-0e229e432d22)
+![781113cfb7a3076ee4cf5d296bfc6d05]![3049e7281ccf0f3a89c0a49f76b35c40](https://github.com/user-attachments/assets/9049cc51-c78c-47e7-8fe6-fb2fa4e56bd6)
+
    kiturge / blazamy comf ship. 
        basic dni criteria
        under 13s dni/iwec
