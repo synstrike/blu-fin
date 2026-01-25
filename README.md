@@ -1,4 +1,6 @@
-(https://github.com/user-attachments/assets/9049cc51-c78c-47e7-8fe6-fb2fa4e56bd6)
+    lo'ak sully's biggest fan 
+         lo'ak kinnie, 
+     i am him and he is me
 
    kiturge / blazamy comf ship. 
        basic dni criteria
