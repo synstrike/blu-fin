@@ -1,12 +1,4 @@
-    lo'ak sully's biggest fan 
-         lo'ak kinnie, 
-     i am him and he is me
 
-   kiturge / blazamy comf ship. 
-       basic dni criteria
-       under 13s dni/iwec
-         ╰⁠(⁠⸝⁠⸝⁠⸝⁠´⁠꒳⁠`⁠⸝⁠⸝⁠⸝⁠)⁠╯
-  am extremely socially anxious.. most likely wont int first    
 <!--
 **blu-fin/blu-fin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
